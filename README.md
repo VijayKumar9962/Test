@@ -1,2 +1,0 @@
-# Kavya-MaggamWorks
-KM Works
